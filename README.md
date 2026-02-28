@@ -1,4 +1,4 @@
-# YOASOBI – 夜に駆ける (From "THE FIRST TAKE")
+# YOASOBI – 夜に駆ける - Yoru ni Kakeru
 
 > **歌詞登録ステータス：同期歌詞あり**
 
